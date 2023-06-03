@@ -1,6 +1,6 @@
 # Luxury
 pro cloner
-<b></b> </br> <br> [![Facebook](https://img.shields.io/badge/Facebook-Mr.NIKI-blue?style=flat-square&logo=facebook)](https://www.facebook.com/NIKI.CYBER404.OFFICIALS)<br> [![WhatsApp](https://img.shields.io/badge/WhatsApp-Mr.NIKI-blue?style=flat-square&logo=WhatsApp)](https://chat.whatsapp.com/IulgtTY1ao6HeowtyCFEGJ)
+<b></b> </br> <br> [![Facebook](https://img.shields.io/badge/Facebook-Mr.NIKI-blue?style=flat-square&logo=facebook)](https://www.facebook.com/ok.tata.good.bye.gaya)<br> [![WhatsApp](https://img.shields.io/badge/WhatsApp-Mr.NIKI-blue?style=flat-square&logo=WhatsApp)](wa.me/+8801645137393)
 
 <h1 align="center"> ERROR PROBLEM FIXED </h1>
 
@@ -8,11 +8,9 @@ pro cloner
 
 <h3 align="center"> ADMIN APPROVAL NEED</h3>
 
-<h4 align="center"> OTHERS COUNTRY FACEBOOK ID CLONE</h4>
+<h4 align="center"> WORLDWIDE WORKING MIX & NEW FACEBOOK ID CLONING COMMAND </h4>
 
-<h5 align="center"> NEW OTHERS COUNTRY TOOLS</h5>
-
-
+![20200808_160757](https://github.com/Niki404-Cyber/Luxury/blob/main/InShot_20230603_025459141.jpg)
 ## <b>Installation</b>
 
 ```
